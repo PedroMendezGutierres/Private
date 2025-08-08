@@ -1,1 +1,1 @@
-https://store3.gofile.io/download/direct/3d0b5c11-1cf1-4439-a953-89bed1871006/fuck.7z
+https://store-na-phx-1.gofile.io/download/direct/58c566c7-b35e-4efa-b02f-d0ef622c1d50/gst.7z
